@@ -1,1 +1,3 @@
 # percobaan
+
+fknknvfknwkpfnwpqmfopqmfopkwiopvmip;mFWUKI,
